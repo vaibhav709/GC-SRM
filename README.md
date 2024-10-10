@@ -31,6 +31,10 @@ Responsive for Mobile Devices
 ![Screenshot 2024-10-10 143035](https://github.com/user-attachments/assets/eb8ce518-fd62-43b5-8feb-e70f9ab41fd7)
 
 
+![image](https://github.com/user-attachments/assets/6cc16bdc-9d47-4cbd-a905-998e78342cbc)
+
+
+
 
 
 
